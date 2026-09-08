@@ -20,7 +20,7 @@ barejant@gmail.com
 
 #### „Coś” powstaje jako fluktuacja „nic”. „Coś” istnieje, dopóki samo nie ulegnie fluktuacji.
 
-#### Nasz Wszechświat zbudowały kwanty energii, które narodziły się „kulawe”. Gdyby nie były „kulawe”, Wszechświat by nie powstał.
+#### Nasz Wszechświat zbudowały kwanty energii, które narodziły się „kulawe”. Gdyby nie były „kulawe”, Wszechświat w ogóle by nie powstał.
 
 ## Wprowadzenie
 
