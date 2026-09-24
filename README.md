@@ -22,6 +22,11 @@ barejant@gmail.com
 
 #### Nasz Wszechświat zbudowały kwanty energii, które narodziły się „kulawe”. Gdyby nie były „kulawe”, Wszechświat w ogóle by nie powstał.
 
+#### Matematyczny opis Wszechświata jest iluzją. Na poziomie fundamentalnym liczb jeszcze nie ma, bo nie ma wzorców miary, a na poziomie uniwersalnym, wobec ogromu Kosmosu, liczby stają się nieprzydatne, bo nie wiadomo, co nimi opisać.
+
+
+
+
 ## Wprowadzenie
 
 Wszystko, co obserwujemy, a będąc materią możemy obserwować tylko materię, jest w nieustannym ruchu i to w ruchu zakrzywionym, a nie prostoliniowym. Wszystko wiruje wokół jakiejś osi i to nie tylko wokół jednej. Wirując wokół jakiejś osi – razem ze wszystkim, co również wiruje wokół niej – wiruje wokół kolejnej osi. Ruch wszystkiego jest więc wielospiralny – każda spirala tworzy kolejną spiralę. Materii nic nie napędza, ani nie zmusza do zakrzywiania toru ruchu, zatem i sam ruch, i zakrzywianie jego toru muszą być własnością tego, z czego materia powstała.
