@@ -20,7 +20,7 @@ barejant@gmail.com
 
 #### „Coś” powstaje jako fluktuacja „nic”. „Coś” istnieje, dopóki samo nie ulegnie fluktuacji.
 
-#### Nasz Wszechświat zbudowały kwanty energii, które narodziły się „kulawe”. Gdyby nie były „kulawe”, Wszechświat w ogóle by nie powstał.
+#### Nasz Wszechświat zbudowały kwanty energii, które narodziły się „kulawe”. Gdyby nie były „kulawe”, Wszechświat w ogóle by nie powstał. „Kulawość” to grawitacja.
 
 #### Matematyczny opis Wszechświata jest iluzją. Na poziomie fundamentalnym liczb jeszcze nie ma, bo nie ma wzorców miary, a na poziomie uniwersalnym, wobec ogromu Kosmosu, liczby stają się nieprzydatne, bo nie wiadomo, co nimi opisać.
 
